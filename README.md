@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on microelectron science and engineering
 - 📫 How to reach me liuye2832407956@outlook.com
 - 😄 Pronouns: he
-- ⚡ Fun fact: I'm a contradiction
+- ⚡ Fun fact: I'm a contradiction, and English is my second language.
 
 <!---
 Liuye-11/Liuye-11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
